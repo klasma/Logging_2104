@@ -1,0 +1,1 @@
+# Hofors kommun
